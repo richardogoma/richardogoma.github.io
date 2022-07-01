@@ -1,1 +1,0 @@
-# richardogoma.github.io
